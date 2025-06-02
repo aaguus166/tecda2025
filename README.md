@@ -1,2 +1,2 @@
-# tecda2025
+# mi_primer_repo
 hhoooooolllllllllllllaaaaaaaaaa
